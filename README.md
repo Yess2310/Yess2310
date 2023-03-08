@@ -1,11 +1,11 @@
-# YESSICA DA SILVA
+# YESSICA DA SILVA 😄
 
 ## Objetivo Profesional
 Aprender lo máximo de cada experiencia laboral. 
 Enriquecer mis conocimientos, mientras continúo formándome y ampliando mis áreas,
 de esta forma conseguir un mayor desempeño en general.
 
-## Experiencia
+## Experiencia 
 Actualmente me encuentro trabajando como administrativa, en el área de control de transporte de una empresa estatal.
 
 ## Aspiraciones
